@@ -1,2 +1,2 @@
 # Hema
-I am Hema from student
+I am a student
